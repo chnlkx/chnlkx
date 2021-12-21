@@ -1,4 +1,4 @@
-# Every One Can get A+ !
+# Every One Can get an A+ !
 
 Hi I'm Kexin. Still learning!
 
